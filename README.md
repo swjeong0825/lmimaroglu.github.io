@@ -1,1 +1,0 @@
-# lmimaroglu.github.io
